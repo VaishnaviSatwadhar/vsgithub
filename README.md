@@ -1,4 +1,4 @@
-# 👋 Hi, I'm Vaishnavi Satwadhar!
+# 👋 Hi, I'm Vaishnavi Satwadhar..
 
 <div align="center">
 
